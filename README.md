@@ -1,2 +1,2 @@
 # X-net
-details please see XXX （https://github.com/Drchenjust/XXX）
+New address：https://github.com/Drchenjust/XXX
